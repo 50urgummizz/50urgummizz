@@ -1,16 +1,17 @@
-## Hi there 👋
+<img src="https://media1.tenor.com/m/-_twGzgdgOkAAAAd/frutiger-aero-frutiger.gif" width="450">
 
-<!--
-**50urgummizz/50urgummizz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://media1.tenor.com/m/pR-T2NwEhYAAAAAd/darkshipper-blinkie.gif" width="300"> <img src="https://media.tenor.com/Kf2ntu6dih8AAAAj/proshipper-blinkie.gif" width="300">
 
-Here are some ideas to get you started:
+## inf00 abyt me :3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌱  50uryyz ノ gummy 
+ 
+<img src="https://media.tenor.com/K98kXQ0iHJ0AAAAj/blue-cyan.gif" width="50"> H3  ノ thy  ノ gummy !
+  
+  16 yrs of experience . ֹʚ🍀ɞ﹒<img src="https://media.tenor.com/cmo2bLi-MEgAAAAj/blue-cyan.gif" width="50">
+
+<img src="https://media.tenor.com/h35xfacVTTEAAAAj/ame-needy-streamer-overload.gif" width="100"> 🍖 🌈 + 🎱 🎀 
+
+  
+
+
