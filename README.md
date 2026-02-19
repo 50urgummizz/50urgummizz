@@ -8,7 +8,7 @@
  
 <img src="https://media.tenor.com/K98kXQ0iHJ0AAAAj/blue-cyan.gif" width="50"> H3  ノ thy  ノ gummy !
   
-  16 yrs of experience . ֹʚ🍀ɞ﹒<img src="https://media.tenor.com/cmo2bLi-MEgAAAAj/blue-cyan.gif" width="50">
+  17 yrs of experience . ֹʚ🍀ɞ﹒<img src="https://media.tenor.com/cmo2bLi-MEgAAAAj/blue-cyan.gif" width="50">
 
 <img src="https://media.tenor.com/h35xfacVTTEAAAAj/ame-needy-streamer-overload.gif" width="100"> 🍖 🌈 + 🎱 🎀 
 
