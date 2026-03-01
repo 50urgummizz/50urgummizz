@@ -10,8 +10,8 @@
   
 <p align="center">  17 yrs of experience . ֹʚ🍀ɞ﹒<img src="https://media.tenor.com/cmo2bLi-MEgAAAAj/blue-cyan.gif" width="50">
 
-<p align="center" > <a href="https://github.com/willbyler">
-  My lovely sprout <3 </a> </p> ,,  kindating partner 
+<p align="center" > <a href="https://github.com/willbylerr">
+  My lovely sprout <3 </a> </p> ,,kindating partner 
 
 <p align="center"> <img src="https://media.tenor.com/h35xfacVTTEAAAAj/ame-needy-streamer-overload.gif" width="100"> 🍖 🌈 + 🎱 🎀 
 
